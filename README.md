@@ -1,2 +1,2 @@
 # Syed
-Author - Syed Ahmad Alisha
+Author - Syed Ahmad Alisha(pec)
